@@ -4,7 +4,7 @@ g
 g
 g
 
-
+ㄴ
 z
 z
 dsfdsf
@@ -12,4 +12,5 @@ dsfdsf
 sdf
 sdfsdfsdfsfdfdfgfdgdfg
 sdfsdfsd
-sdfsdfasfdfsfas
+sdfsdfasfdfsfasㄴㅇㄹㄴㅇㄹ
+ㄴㅇㄹ
