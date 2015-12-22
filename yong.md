@@ -8,9 +8,3 @@ g
 z
 z
 dsfdsf
-
-sdf
-sdfsdfsdfsfdfdfgfdgdfg
-sdfsdfsd
-sdfsdfasfdfsfasㄴㅇㄹㄴㅇㄹ
-ㄴㅇㄹ
